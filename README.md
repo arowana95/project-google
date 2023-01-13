@@ -1,1 +1,1 @@
-google link: https://arowana95.github.io/project-google
+Google link: https://arowana95.github.io/project-google
